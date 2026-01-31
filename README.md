@@ -1,2 +1,2 @@
-# TestStudentIDMerker
+# おまんこ
 学生証クリエイトメーカー
